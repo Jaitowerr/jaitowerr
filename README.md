@@ -56,7 +56,7 @@ Here are some ideas to get you started:
 
 ### 📫 ¿Cómo conectar conmigo?
 
-* 💼 **LinkedIn:** [linkedin.com/in/jaitowerr](https://www.linkedin.com/in/aitorresm)
+* 💼 **LinkedIn:** [linkedin.com/in/aitorresm](https://www.linkedin.com/in/aitorresm)
 * 🐙 **GitHub:** [github.com/jaitowerr](https://github.com/jaitowerr)
 
 </p>
